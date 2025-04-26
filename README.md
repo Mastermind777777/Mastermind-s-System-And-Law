@@ -1,4 +1,4 @@
-# Mastermind-s-System-And-Law
+# Mastermind's-System-And-Law
 Transfinite ordinal framework for resolving paradoxes and redefining reality.
 # The Mastermind System and Law  
 **Creator**: [MasterMind777M]  
